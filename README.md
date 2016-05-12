@@ -1,2 +1,3 @@
 # hello-world
-这是一个说明~
+Fuck you!man!
+You son of a bicth!
